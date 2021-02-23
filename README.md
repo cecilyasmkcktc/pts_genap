@@ -1,1 +1,1 @@
-ujian keterampi PTS genap tentang html dan github
+ujian keterampilan PTS genap tentang html dan github
